@@ -1,4 +1,4 @@
-# zachpanz88.github.io
+# Brinker1999.github.io
 <br>
 My Personal GitHub Website
 <br>
